@@ -1,0 +1,1 @@
+# Folder-Colorizer-Full-Version-Unlocked
